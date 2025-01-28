@@ -1,6 +1,6 @@
 🎏 Welcome to the New Internet
 
-https://www.koii.run Offial website
+Offial website https://www.koii.run 
 
 Why did we build Koii?
 To make a better world by connecting the people that live in it.
