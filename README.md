@@ -1,4 +1,4 @@
-🎏  [Earn Passive Income with your Computer Crypto Software  | Koii Network](https://www.koii.run )
+🎏  [Earn Passive Income Crypto Mining Node | Koii Network | Koii Network](https://www.koii.run )
 
 Offial website https://www.koii.run 
 
