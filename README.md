@@ -1,6 +1,6 @@
 🎏  Earn Passive Income Crypto Mining Node | Koii Network
 
-Offial website https://www.koii.network/
+Offial website [[https://www.koii.run/](https://koii.run/)](https://koii.run/)
 
 
 What is Koii (KOII)?
